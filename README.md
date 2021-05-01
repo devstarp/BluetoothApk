@@ -1,7 +1,7 @@
 Hello,Ohad
 
 I wish we will chat through the Skype.
-my skype id is "ted.otv@outlook.com".
+my skype id is "ted.otv@outlook.com". "live:.cid.e645ccf5b2dd4970"
 
 Freelancer website demands the payment fee.
 In the future, we will contact and pay directly.
