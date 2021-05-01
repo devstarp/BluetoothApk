@@ -1,4 +1,5 @@
-Hello,Ohad
+Hello,Ohad\n
+
 I wanna we will have a communication in the SKype after this.
 Freelancer website forbidded the Skype in the chat.
 my skype id is "ted.otv@outlook.com".
