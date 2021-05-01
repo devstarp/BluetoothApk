@@ -1,4 +1,4 @@
-Hello,Ohad\n
+Hello,Ohad
 
 I wanna we will have a communication in the SKype after this.
 Freelancer website forbidded the Skype in the chat.
